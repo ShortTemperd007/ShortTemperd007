@@ -13,6 +13,7 @@ Hacking".
 - 📫 How to reach me ...
 - Instagram  https://www.instagram.com/shorttemperd007/
 - Facebook   https://www.facebook.com/ahnaf.honey/
+- Linkedin   https://www.linkedin.com/in/muhammad-huzaifa-anjum-a80aa0279/
 - fiver      https://www.fiverr.com/muhammadhuza007?up_rollout=true
 - substack   https://substack.com/profile/127349544-muhammad-huzaifa?utm_source=user-menu
 - Whats app  M huzaifa +92-3106771230
