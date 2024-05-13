@@ -1,3 +1,8 @@
+
+<img src="bg.png" alt="1">
+
+
+
 - 👋 Hi, I’m @ShortTemperd007
 - 👀 I’m interested in Cyber Security and Ethical Hacking
 - 🌱 I’m currently learning more about cyber security and Ethical Hacking
